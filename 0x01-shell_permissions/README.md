@@ -1,1 +1,1 @@
-6. Multiple permissions
+12. More directories

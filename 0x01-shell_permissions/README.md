@@ -1,1 +1,1 @@
-7.everybody
+7.eveybody

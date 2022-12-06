@@ -1,1 +1,1 @@
-Everyone is a proponent of strong encryption
+ I'm an instant star. Just add water and stir
